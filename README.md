@@ -7,4 +7,4 @@
   boniguilherme53@gmail.com (pessoal)
   00001114798952sp@al.educacao.sp.gov.br (institucional)
 
-  ![](https://media.tenor.com/orbC8iSGUqYAAAAj/rick-and-morty.gif)
+  ![](https://media.tenor.com/H2mK_NOHBh8AAAAj/rick-and.gif)
